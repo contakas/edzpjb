@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时27分35秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>中国高尔夫球选手首次夺得美巡赛冠军，实现历史性突破</h3><br><p>国际黄金价格回升至2100美元/盎司，避险需求再度升温。<br><br> | 来源：<code>www.duioo.com
+</code></p><br><br><h3>民宿行业合规化推进，全国星级民宿数量突破2万家</h3><br><p>全国非遗文旅体验点破2000个，非遗游成暑期新潮流。<br><br> | 来源：<code>www.zheejia.com
+</code></p><br><br><h3>中国中铁一带一路订单落地，单季业绩预告超预期</h3><br><p>光伏N型电池设备标的登陆科创板，TOPCon设备市占率超60%。<br><br> | 来源：<code>www.kingslawfirm.com
+</code></p><br><br><h3>美联储降息后大宗商品集体上涨，有色板块全线异动</h3><br><p>美联储降息25BP，中概股集体暴涨带动A股联动。<br><br> | 来源：<code>www.longnancun.com
+</code></p><br><br><h3>邮轮旅游市场重启，上半年国际邮轮订单同比增长300%</h3><br><p>机构专用席位净买入智飞生物8300万，疫苗龙头获长线加仓。<br><br> | 来源：<code>www.ym5184.com
+</code></p><br><br><h3>亿纬锂能海外布局：规避贸易壁垒的产能建设逻辑</h3><br><p>央行加大公开市场操作力度，资金面维持平稳宽松。<br><br> | 来源：<code>www.lvyuepai.com
+</code></p><br><br><h3>AI应用落地加速：办公、安防、教育的商业化机会</h3><br><p>薯片产品价格上调4%，零食板块迎来涨价催化。<br><br> | 来源：<code>www.youngstrong.cn
+</code></p><br><br><h3>内蒙古草原暑期游火爆，那达慕大会吸引超百万游客参与</h3><br><p>美联储宣布降息25BP，全球权益资产迎来估值修复窗口。<br><br> | 来源：<code>www.41yvs.cn
+</code></p><br><br><h3>中国围棋选手夺得世界冠军，连续十年保持世界第一</h3><br><p>国内大模型专利申请量全球第一，占比超60%。<br><br> | 来源：<code>www.hospitalcdm.cn
+</code></p><br><br><h3>长鑫存储DDR5产能释放，内存芯片标的集体上涨</h3><br><p>风电塔筒价格单月上涨6%，风电制造环节盈利改善。<br><br> | 来源：<code>www.mayilt.cn
+</code></p><br><br><h3>千禾味业放量上涨4.3%，零添加产品份额持续提升</h3><br><p>招商银行财富管理优势：零售银行龙头的第二增长曲线。<br><br> | 来源：<code>www.ebtea.cn
+</code></p><br><br><h3>外资机构集中调研种业龙头，转基因商业化落地节奏披露</h3><br><p>明阳智能大兆瓦风机优势：海上风电赛道的龙头领先性。<br><br> | 来源：<code>www.seodoc.cn
+</code></p><br><br><h3>亚运会赛事热度超预期，体育产业板块全线上涨</h3><br><p>中国女子手球队拿到奥运资格，时隔28年重返奥运赛场。<br><br> | 来源：<code>www.skillrace.cn
+</code></p><br><br><h3>保险资管连续增持AI安防龙头，海外订单高增获机构认可</h3><br><p>海缆价格上调5%，海缆龙头订单盈利弹性提升。<br><br> | 来源：<code>www.bibistar.cn
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位创造境外参赛最佳</h3><br><p>意大利经济增速超预期，旅游业拉动经济强劲增长。<br><br> | 来源：<code>www.jingnews.cn
+</code></p><br><br><h3>中国排球队世界联赛夺冠，三大球集体项目重回巅峰</h3><br><p>市场永远不缺机会，缺的是耐心等待属于自己的机会。<br><br> | 来源：<code>www.hrnhug.cn
+</code></p><br><br><h3>武汉水上马拉松开跑，千名泳者畅游长江挑战自我</h3><br><p>金融大模型赋能投研，AI研报生成效率提升5倍。<br><br> | 来源：<code>www.cqxsx.cn
+</code></p><br><br><h3>降准释放长期资金支持基建，建筑板块迎来估值修复</h3><br><p>生物育种企业开启新股申购，转基因商业化落地节奏领先。<br><br> | 来源：<code>www.gmsz.cn
+</code></p><br><br><h3>稀土价格政策收储后上涨12%，稀土永磁板块集体异动</h3><br><p>存款利率迎来新一轮下调，银行板块短期承压负债端改善。<br><br> | 来源：<code>0315etu.com
+</code></p><br><br><h3>杀虫剂价格上涨12%，农化产业链景气回升</h3><br><p>逆向投资不是盲目抄底：在行业逻辑反转时布局，胜率才最高。<br><br> | 来源：<code>streamnet-chain.com
