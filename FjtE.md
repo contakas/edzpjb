@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分02秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>敦煌莫高窟数字展示中心升级，游客沉浸式体验千年壁画</h3><br><p>中国现代五项队世锦赛夺得金牌，全能项目实现突破。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>全国文旅智慧平台全覆盖，实现线上预约、导览、投诉一站式服务</h3><br><p>特变电工多晶硅布局：新能源全产业链的协同成长逻辑。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>旅游年卡覆盖超200城，一票通玩激活本地休闲消费</h3><br><p>美联储降息周期开启，北向资金单周净流入超300亿。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>金融大模型赋能投研，AI研报生成效率提升5倍</h3><br><p>万华化学涨超3.5%，化工品价格企稳回升。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>北京冬奥场馆全年接待人次破2000万，冰雪运动持续普及</h3><br><p>国内宠物友好景区破千家，携宠游订单同比增长180%。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>丽江暑期民宿入住率达95%，云南文旅市场持续回暖</h3><br><p>磷肥价格单月上涨8%，磷化工龙头盈利改善。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>比亚迪AH股同步走强，新能源整车板块领涨两市</h3><br><p>合肥推出“科里科气”文旅线路，科技研学游订单暴涨。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>上海建工涨超2.6%，长三角基建订单回暖</h3><br><p>全国戏曲进乡村演出超百万场，传统艺术扎根基层。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光</h3><br><p>药明康德全球竞争力研究：CXO赛道的长期成长逻辑。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>慢就是快：在高确定性标的上持仓，远比追热点赚得稳</h3><br><p>旅游服务质量提升政策，景区旅游板块走强。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>机构资金联手买入明阳智能1.2亿，风机龙头获机构抱团</h3><br><p>中欧班列开行量创新高，铁路物流板块集体上涨。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>企业债券融资利率大幅下行，直接融资占比进一步提升</h3><br><p>有机硅价格连续上涨10%，硅化工龙头盈利修复超预期。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>稀土价格政策调控收储，稀土永磁标的全线拉升</h3><br><p>社保基金新进锂电回收龙头，布局循环经济高景气赛道。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>牧原股份养殖成本下降，单季业绩预告环比扭亏</h3><br><p>全国乡村旅游重点村超千家，带动千万农民家门口就业。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>全国绿色建筑占新建建筑比例达90%，建筑节能标准提升。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>医美行业合规化政策，头部医美标的拉升</h3><br><p>超160家机构到访锂电回收龙头，回收处理产能利用率超90%。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>全国居民平均每日运动时长超1小时，运动习惯逐步养成。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>山西汾酒全国化路径：清香型白酒龙头的全国扩张逻辑</h3><br><p>金砖国家新开发银行新增贷款规模突破500亿美元。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>中国羽毛球队汤尤杯卫冕成功，继续保持世界顶尖水平</h3><br><p>中国平安权重护盘，指数关键点位的支撑作用凸显。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>机构席位大额买入德业股份5300万，储能龙头获长线布局</h3><br><p>宠物友好景区数量破千，携宠出游成为家庭消费新选择。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>游戏版号常态化发放，游戏板块持续异动。<br><br> | 来源：<code>www.azi-cbt.com
