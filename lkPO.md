@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分00秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>5年期LPR下调带动地产链估值修复，家居家电板块集体上涨</h3><br><p>中国建筑涨超2.8%，基建订单持续饱满。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>黄金价格创历史新高，黄金珠宝板块盈利弹性释放</h3><br><p>海尔智家全球化品牌布局：多品牌矩阵下的全球份额扩张。<br><br> | 来源：<code>www.jbhn.cn
+</code></p><br><br><h3>中国男足世预赛1-0击败韩国，提前锁定2026世界杯出线名额</h3><br><p>安徽建工涨超3.6%，长三角基建订单持续落地。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>锌价突破2.8万元/吨，锌业上市公司盈利弹性释放</h3><br><p>大股东耗资3.8亿增持钙钛矿设备标的，助力核心设备研发。<br><br> | 来源：<code>www.ituijie.com
+</code></p><br><br><h3>中原高速异动拉升2.2%，河南路网业务边际改善</h3><br><p>车联网安全标准出台，车联网板块集体上涨。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>长电科技先进封装技术：全球封测龙头的份额提升逻辑</h3><br><p>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡。<br><br> | 来源：<code>www.szhdly.com.cn
+</code></p><br><br><h3>全国体育产业总规模上半年突破3.5万亿元，占GDP比重提升</h3><br><p>全国县域经济百强榜发布，东部地区占比超七成。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>紫金矿业创阶段新高，黄金有色板块沿趋势上行</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>www.fjzp.net
+</code></p><br><br><h3>低空经济龙头登陆创业板，eVTOL适航认证进度成核心看点</h3><br><p>全国中医药服务覆盖所有社区，中医馆成为基层医疗标配。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>长安汽车深蓝品牌定位：主流新能源市场的差异化竞争</h3><br><p>上半年全国显示面板出口同比增长21%，电子产业优势巩固。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>游资顶级席位打板天赐材料1.2亿，电解液标的获热炒</h3><br><p>原油价格突破85美元/桶，油气开采板块盈利提升。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>油气增储上产政策，油气设备板块集体上涨</h3><br><p>多地推出“文旅+体育”融合产品，马拉松、徒步游订单激增。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>高管团队集体调研后增持冷链物流标的，合计增持超8000万</h3><br><p>央行发布数字人民币最新数据，交易金额突破55万亿元。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>上半年全国实际使用外资同比增长3.1%，高技术产业占比超40%</h3><br><p>头部机构组团到访冷链物流标的，生鲜配送网络覆盖披露。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>大模型在物流领域应用，路径规划效率提升30%</h3><br><p>碳排放权交易市场扩容，碳交易标的全线异动。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>美联储宣布降息25BP，全球权益资产迎来估值修复窗口</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>普惠小微贷款利率进一步下行，中小微企业盈利改善</h3><br><p>游戏大模型落地，AI实时生成游戏场景大幅降低开发成本。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>上半年全国医药制造业利润同比增长13%，创新药贡献突出</h3><br><p>多式联运示范工程落地，物流枢纽板块走强。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>海康威视企稳回升，AI安防赛道需求逐步回暖</h3><br><p>武夷山暑期游客量突破180万人次，茶旅融合发展成效显著。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>药明康德单日涨超5%，CXO板块迎来情绪拐点</h3><br><p>许继电气特高压订单落地，单季业绩预告超预期。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>多地调整最低工资标准，最高涨幅达11.5%惠及千万劳动者</h3><br><p>亨通光电海洋能源布局：光通信龙头的第二成长曲线。<br><br> | 来源：<code>www.jogosdefutebol10.com
