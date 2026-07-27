@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分57秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国公积金贷款政策优化，支持居民合理住房需求</h3><br><p>北京马拉松参赛人数突破3万，全球顶级赛事影响力持续扩大。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>全国癌症早筛项目覆盖所有地级市，早诊率提升至60%</h3><br><p>亚太经合组织峰会召开，达成数字经济合作框架。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>企业中长期贷款增速回升，宽信用效果逐步显现</h3><br><p>车联网安全标准出台，车联网板块集体上涨。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：动力电池+储能双轮驱动成长</h3><br><p>中国女子篮球WNBA选手韩旭率队闯入季后赛，表现惊艳。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>外资资管集中调研跨境电商龙头，出口增速数据首次公开</h3><br><p>多地发放消费券超200亿元，撬动社会消费超千亿元。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>特斯拉机器人Optimus新进展，人形机器人板块异动</h3><br><p>恒力石化炼化盈利修复，前三季度业绩预增超35%。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>产业资本集中增持休闲食品龙头，线下渠道复购改善获布局</h3><br><p>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径</h3><br><p>隔膜价格小幅上涨3%，隔膜龙头盈利迎来修复。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>镍价单月上涨11%，不锈钢板块迎来涨价催化</h3><br><p>小鹏汽车智能驾驶优势：新势力车企的技术差异化路径。<br><br> | 来源：<code>www.tianmeichina.com
+</code></p><br><br><h3>中天科技海缆+储能协同：多元化能源企业的成长逻辑</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善。<br><br> | 来源：<code>www.79lr.com
+</code></p><br><br><h3>中国与中东欧国家合作升级，互联互通项目持续落地</h3><br><p>全国重点海域入海排污口整治完成，海洋污染源头管控加强。<br><br> | 来源：<code>www.qzu.zj.cn
+</code></p><br><br><h3>特变电工新能源多赛道布局：从输变电到新能源的转型</h3><br><p>央行表态适时加大政策力度，后续降准降息仍有空间。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>金砖国家新开发银行新增贷款规模突破500亿美元</h3><br><p>阳光电源跳空高开，缺口支撑下的短期趋势判断。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>瑞士经济温和增长，金融和高端制造业表现稳定</h3><br><p>中际旭创光模块技术优势：全球数通市场的份额扩张。<br><br> | 来源：<code>www.jyylj.com
+</code></p><br><br><h3>全球氢能产业投资突破5000亿美元，商业化进程加速</h3><br><p>中国橄榄球队首次晋级亚运会四强，项目普及度快速提升。<br><br> | 来源：<code>www.chtea.ac.cn
+</code></p><br><br><h3>上海自贸区扩区方案落地，引领更高水平对外开放</h3><br><p>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升。<br><br> | 来源：<code>www.idmcinc.com
+</code></p><br><br><h3>农业机械化推广政策，农机装备板块全线异动</h3><br><p>招商银行零售银行优势：高ROE背后的经营质量解析。<br><br> | 来源：<code>www.azi-cbt.com
+</code></p><br><br><h3>万科A地产龙头抗风险能力：行业调整期的稳健经营逻辑</h3><br><p>基金公司集体到访人形电机龙头，力矩电机产能释放数据。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>上半年全国居民消费支出同比增长7.3%，服务消费占比提升</h3><br><p>网络游戏管理新规落地，游戏板块情绪修复上涨。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>保利发展土储优势：核心城市优质土储的长期价值释放。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>厦门鼓浪屿暑期日均客流超12万，文艺文旅产品受年轻人追捧</h3><br><p>全球6G研发进入关键阶段，多国联合推进技术标准制定。<br><br> | 来源：<code>www.kayhaerland.com
