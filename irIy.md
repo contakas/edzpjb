@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分22秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>闻泰科技异动拉升4.9%，半导体ODM业务盈利修复。<br><br> | 来源：<code>https://lang-lang-shipin.com.cn
+</code></p><br><br><h3>上半年全国医药制造业利润同比增长13%，创新药贡献突出</h3><br><p>低空旅游市场爆发，上半年直升机观光订单同比增长200%。<br><br> | 来源：<code>https://lansexiao.com.cn
+</code></p><br><br><h3>比亚迪涨超6.7%，刀片电池外供比例持续提升</h3><br><p>美的集团全球化运营：家电龙头的海外市场拓展逻辑。<br><br> | 来源：<code>https://lao-qi-wang.com.cn
+</code></p><br><br><h3>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入</h3><br><p>农药价格开启新一轮涨价，农化板块盈利弹性释放。<br><br> | 来源：<code>https://lao-se-ge.com.cn
+</code></p><br><br><h3>生物医药产业创新政策，CXO板块全线异动</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>https://laoliuziyuanku.org.cn
+</code></p><br><br><h3>全国地热能源开发利用规模突破5000万吨标准煤</h3><br><p>五粮液品牌与渠道优势：浓香型白酒龙头的护城河解析。<br><br> | 来源：<code>https://laosijibumilu.org.cn
+</code></p><br><br><h3>泰胜风能涨超5.0%，海外风电塔架出口爆发</h3><br><p>奥地利经济复苏，旅游业和制造业双回暖。<br><br> | 来源：<code>https://laosijidaohang.org.cn
+</code></p><br><br><h3>中国中冶冶金工程优势：新能源冶金赛道的领先地位</h3><br><p>上半年全国集成电路产量同比增长18%，产业链自主可控推进。<br><br> | 来源：<code>https://laosijimanhua.org.cn
+</code></p><br><br><h3>风控永远放在第一位：先保住本金，再谈盈利空间</h3><br><p>全国二手车交易量上半年突破1000万辆，流通市场活跃。<br><br> | 来源：<code>https://laosijiyuming.org.cn
+</code></p><br><br><h3>海螺水泥成本控制能力：水泥行业龙头的长期盈利韧性</h3><br><p>全球新能源汽车电池市场规模突破3000亿美元，中国企业主导。<br><br> | 来源：<code>https://leplayqiumi.com.cn
+</code></p><br><br><h3>全国商品房销售面积同比由负转正，市场信心逐步恢复</h3><br><p>中原高速异动拉升2.2%，河南路网业务边际改善。<br><br> | 来源：<code>https://leyusaishi.com.cn
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>金龙汽车涨超3.6%，新能源客车订单持续落地。<br><br> | 来源：<code>https://li-zong-rui.com.cn
+</code></p><br><br><h3>六氟磷酸锂价格单月上涨10%，电解液龙头盈利修复</h3><br><p>机构+北向合力买入兆易创新1.2亿，存储芯片标的获资金布局。<br><br> | 来源：<code>https://liangnuyibei.com.cn
+</code></p><br><br><h3>AI视频修复技术普及，老电影4K修复效率提升10倍</h3><br><p>能耗双控政策优化，高耗能行业龙头标的走强。<br><br> | 来源：<code>https://lianzuwangzhan.com.cn
+</code></p><br><br><h3>电阻产品价格上调4%，被动元件板块迎来行情</h3><br><p>全国全民阅读指数达72分，人均年阅读纸质书超8本。<br><br> | 来源：<code>https://liaoheishequ.com.cn
+</code></p><br><br><h3>恒瑞医药创新药放量，前三季度业绩预增超40%</h3><br><p>1年期LPR下调降低企业短期融资成本，经营活力提升。<br><br> | 来源：<code>https://liboqiubao.com.cn
+</code></p><br><br><h3>全国钢铁行业超低排放改造完成，减排效果达国际先进水平</h3><br><p>北向资金单日买入海康威视3.2亿，AI安防龙头获外资流入。<br><br> | 来源：<code>https://lidongmanfan.com.cn
+</code></p><br><br><h3>敦煌莫高窟暑期门票预约排至10天后，数字敦煌线上访问破亿</h3><br><p>央行宣布定向降准1个百分点，精准支持普惠金融领域。<br><br> | 来源：<code>https://lifandongmanmanhua.org.cn
+</code></p><br><br><h3>承德避暑山庄暑期日均客流超6万，皇家文旅体验受追捧</h3><br><p>电阻产品价格上调4%，被动元件板块迎来行情。<br><br> | 来源：<code>https://lifanzaixianmianfei.com.cn
+</code></p><br><br><h3>美联储宣布降息50BP超市场预期，全球风险资产暴涨</h3><br><p>拓普集团护城河分析：汽车零部件平台型企业的长期价值。<br><br> | 来源：<code>https://limandongman.com.cn
