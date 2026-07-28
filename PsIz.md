@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分45秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>紫金矿业创阶段新高3.2%，铜金产量持续超预期</h3><br><p>理想汽车单季盈利超20亿，新势力车企业绩超预期。<br><br> | 来源：<code>https://shipin-zaixianguankan.com.cn
+</code></p><br><br><h3>国内大模型企业估值破万亿，30家企业跻身独角兽行列</h3><br><p>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。<br><br> | 来源：<code>https://shipin91.cn
+</code></p><br><br><h3>宝钢股份企稳回升，低位标的的补涨机会分析</h3><br><p>首套房贷款利率突破3%关口，地产销售边际回暖信号显现。<br><br> | 来源：<code>https://shipinchengren.cn
+</code></p><br><br><h3>实控人兜底式增持中药配方颗粒标的，员工参与比例超85%</h3><br><p>国内大模型创业融资额破千亿，资本持续加码赛道。<br><br> | 来源：<code>https://shipinhuanggua.cn
+</code></p><br><br><h3>数据要素政策落地，数据确权板块全线上涨</h3><br><p>杀菌剂价格上调10%，农药细分板块迎来行情。<br><br> | 来源：<code>https://shipinmogu.com.cn
+</code></p><br><br><h3>超170家机构到访PCB龙头，AI服务器板订单同比翻倍</h3><br><p>中国射箭队世锦赛打破世界纪录，首次夺得团体金牌。<br><br> | 来源：<code>https://shipinxiangjiao.cn
+</code></p><br><br><h3>亿纬锂能多赛道布局：消费电池+动力电池+储能的协同</h3><br><p>实控人承诺6个月内不减持机器人控制器标的，稳定股价。<br><br> | 来源：<code>https://shixiongashixiong.com.cn
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设</h3><br><p>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层。<br><br> | 来源：<code>https://shoujihuangyou.com.cn
+</code></p><br><br><h3>全球储能市场规模突破500GWh，新型电力系统建设提速</h3><br><p>LPR非对称下调，银行净息差压力边际缓解。<br><br> | 来源：<code>https://shuiguopaijieshuozaixianguankan.com.cn
+</code></p><br><br><h3>大模型在新闻领域应用，AI生成快讯占比超60%</h3><br><p>QFII集中调研快递物流龙头，单票盈利创历史新高。<br><br> | 来源：<code>https://shuimitao-shipin.com.cn
+</code></p><br><br><h3>定向降准支持县域金融机构，乡村振兴板块迎来利好</h3><br><p>化肥价格集体上涨，农资板块迎来产品涨价催化。<br><br> | 来源：<code>https://shuimitaowangzhan.com.cn
+</code></p><br><br><h3>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>https://shuixian-zhibo.com.cn
+</code></p><br><br><h3>锰价上涨8%，锰酸锂材料板块迎来行情</h3><br><p>社保基金新进智慧矿山龙头，布局煤矿智能化改造赛道。<br><br> | 来源：<code>https://shunudonghua.com.cn
+</code></p><br><br><h3>东方财富涨超7.1%，基金代销业务环比改善</h3><br><p>产业基金组团调研后集中增持医药流通龙头，合计投入超6亿。<br><br> | 来源：<code>https://si-hu-yingyuan.com.cn
+</code></p><br><br><h3>华域汽车涨超3.9%，汽车零部件龙头业绩超预期</h3><br><p>外资资管举牌消费电子龙头，苹果产业链获外资持续加仓。<br><br> | 来源：<code>https://si-hu.com.cn
+</code></p><br><br><h3>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进</h3><br><p>多地优化楼市限购政策，取消二环外住房限购限制。<br><br> | 来源：<code>https://si-huyingshi.com.cn
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>中国女子排球队奥运夺冠，时隔12年再度站上最高领奖台。<br><br> | 来源：<code>https://si-huyingyuan.com.cn
+</code></p><br><br><h3>美联储降息25BP符合市场预期，全球股市迎来普涨行情</h3><br><p>天赐材料电解液成本控制：行业龙头的规模优势解析。<br><br> | 来源：<code>https://si-huzaixianguankan.com.cn
+</code></p><br><br><h3>券商研究所扎堆调研AI芯片设计标的，大模型推理芯片流片成功</h3><br><p>粤港澳大湾区政策升级，湾区地产基建标的走强。<br><br> | 来源：<code>https://sibada-daren-ban-mantianxing-xingchen.com.cn
+</code></p><br><br><h3>中国男子跳高选手跳出2米40，打破尘封28年全国纪录</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>https://sigua-shipin.cn
