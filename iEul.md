@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分47秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>5年期LPR下调15BP，地产链估值修复行情延续</h3><br><p>新型电力系统建设规划，电力设备板块走强。<br><br> | 来源：<code>https://91ncc.com.cn
+</code></p><br><br><h3>QFII大幅加仓IDC龙头，海外资金看好AI算力需求爆发</h3><br><p>券商研究所扎堆调研算力租赁标的，机柜上架率突破95%。<br><br> | 来源：<code>https://91ncn.com.cn
+</code></p><br><br><h3>上半年全国光伏组件出口同比增长28%，全球市场份额超92%</h3><br><p>保险资管扎堆调研航空发动机标的，量产交付进度引关注。<br><br> | 来源：<code>https://91ncom.cn
+</code></p><br><br><h3>房贷利率下限进一步放宽，刚需购房成本大幅下降</h3><br><p>百度文心大模型4.5版本发布，推理速度提升400%成本下降70%。<br><br> | 来源：<code>https://91ncom.com.cn
+</code></p><br><br><h3>东方电气氢能布局：能源装备龙头的第二成长曲线解析</h3><br><p>国产大飞机C919批量交付，民航产业链标的上涨。<br><br> | 来源：<code>https://91ncome2808b.com.cn
+</code></p><br><br><h3>宇通客车全球客车龙头优势：新能源客车的全球份额扩张</h3><br><p>千禾味业零添加差异化路线：调味品赛道的突围逻辑。<br><br> | 来源：<code>https://91ncon.com.cn
+</code></p><br><br><h3>杭州亚运会后首个体育年，全国赛事活动数量同比增长40%</h3><br><p>央行下调再贷款再贴现利率，小微和三农融资成本下行。<br><br> | 来源：<code>https://91niu.com.cn
+</code></p><br><br><h3>三元正极材料价格上调6%，锂电材料产业链景气回升</h3><br><p>养老金现身创新器械标的，海外FDA获批进度超预期。<br><br> | 来源：<code>https://91nwang.cn
+</code></p><br><br><h3>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势</h3><br><p>蒙牛乳业放量上涨3.7%，低温奶业务增速亮眼。<br><br> | 来源：<code>https://91pian.cn
+</code></p><br><br><h3>水产品价格集体上涨，水产养殖板块迎来涨价催化</h3><br><p>浪潮信息冲高，AI服务器需求维持高增长态势。<br><br> | 来源：<code>https://91pian.com.cn
+</code></p><br><br><h3>中际旭创再创历史新高，800G光模块份额超70%</h3><br><p>光伏行业产能置换政策落地，落后产能出清标的异动。<br><br> | 来源：<code>https://91piankan.cn
+</code></p><br><br><h3>大模型在水利领域应用，洪水预警提前量提升至72小时</h3><br><p>恩捷股份隔膜技术壁垒：锂电池隔膜全球龙头的份额优势。<br><br> | 来源：<code>https://91pianku.com.cn
+</code></p><br><br><h3>全国扬子鳄野生种群数量突破2万只，野外放归成效显著</h3><br><p>全国荒漠化土地面积连续20年缩减，沙化治理成效突出。<br><br> | 来源：<code>https://91pojieban.cn
+</code></p><br><br><h3>药明康德MACD金叉，技术指标共振带来布局机会</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>https://91pro.com.cn
+</code></p><br><br><h3>深高速放量上涨2.5%，深圳区域路网资产优质</h3><br><p>美联储宣布降息50BP超市场预期，全球风险资产暴涨。<br><br> | 来源：<code>https://91she.com.cn
+</code></p><br><br><h3>海尔智家全球化品牌布局：多品牌矩阵下的全球份额扩张</h3><br><p>全球5G用户突破30亿，中国市场占比超一半。<br><br> | 来源：<code>https://91shequ.com.cn
+</code></p><br><br><h3>长城国家文化公园建设完工，沿线游览步道贯通超万公里</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>https://91shi.cn
+</code></p><br><br><h3>集成电路税收减免政策延长，芯片全板块集体上涨</h3><br><p>北向资金连续调研后举牌智能电网标的，外资持续流入。<br><br> | 来源：<code>https://91shi.com.cn
+</code></p><br><br><h3>外资机构席位净买入江铃汽车4600万，轻卡龙头获外资加仓</h3><br><p>紫光国微特种芯片优势：军工电子赛道的隐形冠军解析。<br><br> | 来源：<code>https://91shipin.com.cn
+</code></p><br><br><h3>国家版本馆全部建成开放，典藏中华文脉珍贵资源</h3><br><p>全国生态保护红线划定完成，覆盖超三分之一陆域面积。<br><br> | 来源：<code>https://91shipinwang.cn
